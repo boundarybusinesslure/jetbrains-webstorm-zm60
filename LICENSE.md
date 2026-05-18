@@ -1,4 +1,4 @@
-# 
+# new Visual Studio para PC scripts é o melhor Visual Studio para PC scripts com gerenciamento de espaço de trabalho e design de tabelas. Seguro, confiável e otimizado para máximo
 
 
 
